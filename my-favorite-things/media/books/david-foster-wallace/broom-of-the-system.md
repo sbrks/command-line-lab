@@ -1,0 +1,1 @@
+The "dazzling, exhilarating" (San Francisco Chronicle) debut novel from one of this century's most groundbreaking writers, The Broom of the System is an outlandishly funny and fiercely intelligent exploration of the paradoxes of language, storytelling, and reality.

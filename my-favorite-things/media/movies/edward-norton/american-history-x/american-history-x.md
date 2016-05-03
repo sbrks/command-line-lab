@@ -1,0 +1,3 @@
+American History X is a 1998 American crime drama film directed by Tony Kaye, written by David McKenna, and stars Edward Norton, Edward Furlong, Fairuza Balk, Stacy Keach, Elliott Gould, Avery Brooks, Ethan Suplee and Beverly D'Angelo. The film was released in the United States on October 30, 1998 and was distributed by New Line Cinema.
+
+The film tells the story of two Venice, Los Angeles brothers who become involved in the neo-Nazi movement. The older brother serves three years in prison for voluntary manslaughter, changes his beliefs and tries to prevent his brother from going down the same path. The film is told in the style of nonlinear narrative. Made on a budget of $20 million, it grossed $24 million at the worldwide box office.
